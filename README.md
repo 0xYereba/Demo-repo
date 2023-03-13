@@ -16,4 +16,4 @@ Get early role #👽┃early-adopter-role
 Don't Spam bot!! 
 
 Glad to have y'all here..
-🌠🌠🌠✈️
+🌠🌠🌠✈️nextlevel
